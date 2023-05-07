@@ -20,6 +20,6 @@ Languages and tool I use now
 
 ![image](https://user-images.githubusercontent.com/121160926/236700278-6ebf5431-04cf-48ab-bb45-152f40d212cf.png)
 ![image](https://user-images.githubusercontent.com/121160926/236700296-4428e208-b249-4014-8dcc-94b7bc1a166e.png)
-![image](https://user-images.githubusercontent.com/121160926/236700309-66f98ddb-0f16-48c3-b057-eed765c35259.png)
-![image](https://user-images.githubusercontent.com/121160926/236700315-257ae4b6-2bb4-4ef2-8da4-af8c6035826f.png)
+![image](https://user-images.githubusercontent.com/121160926/236700309-66f98ddb-0f16-48c3-b057-eed765c35259.png)[
+![image](https://user-images.githubusercontent.com/121160926/236700315-257ae4b6-2bb4-4ef2-8da4-af8c6035826f.png)](https://user-images.githubusercontent.com/121160926/236700315-257ae4b6-2bb4-4ef2-8da4-af8c6035826f.png)
 

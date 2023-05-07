@@ -1,5 +1,7 @@
-### Hi there my name is Azizbek 👋
-I'm 20 YO
+### Hi there, my name is Azizbek 👋
+
+---
+
 
 ![image](https://user-images.githubusercontent.com/121160926/236699127-08284374-373a-4184-9bb9-6240fc16f8de.png)
 

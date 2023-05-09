@@ -24,6 +24,7 @@ My gmail address azizbekyakubov2003@gmail.com
 ![image](https://user-images.githubusercontent.com/121160926/236700354-8c8d5c4f-937d-45a5-a656-7b9d11ebe23c.png)
 ![image](https://user-images.githubusercontent.com/121160926/236700530-366e82f2-8095-495b-bf20-3aca02840423.png)
 ![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/ba162d11-ee5e-46fc-bf6f-28e4b45b5c0f.png)
+![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/f1424601-e24f-400f-a479-29945933a14d.png)
 
 ---
 
@@ -34,4 +35,4 @@ My gmail address azizbekyakubov2003@gmail.com
 ![image](https://user-images.githubusercontent.com/121160926/236700377-ea7f8134-08bb-4ebd-8c80-0306c42e2ece.png)
 ![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/b254ae35-ba23-4544-825b-7a14b18a924d.png)
 ![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/c1f5f214-a9d5-4275-ae97-d3a5bd670a2a.png)
-
+![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/b38f2ebc-ab67-4bc4-be66-fda6d5d6cdac.png)

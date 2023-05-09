@@ -29,6 +29,6 @@ Languages and tool I use now
 Languages and tools I refresh and learn
 ---
 ![image](https://user-images.githubusercontent.com/121160926/236700377-ea7f8134-08bb-4ebd-8c80-0306c42e2ece.png)
-![image](https://user-images.githubusercontent.com/121160926/236700515-3c31541a-6241-4da5-93c1-bf739fe6ac8e.png, height='40px', width='40px')
-![image](https://user-images.githubusercontent.com/121160926/236700539-418251b8-ea21-4cda-a1b4-73d3af64c953.png)
+![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/b254ae35-ba23-4544-825b-7a14b18a924d)
+![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/ba162d11-ee5e-46fc-bf6f-28e4b45b5c0f)
 

@@ -24,7 +24,6 @@ My gmail address azizbekyakubov2003@gmail.com
 ![image](https://user-images.githubusercontent.com/121160926/236700354-8c8d5c4f-937d-45a5-a656-7b9d11ebe23c.png)
 ![image](https://user-images.githubusercontent.com/121160926/236700530-366e82f2-8095-495b-bf20-3aca02840423.png)
 ![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/ba162d11-ee5e-46fc-bf6f-28e4b45b5c0f.png)
-![image](https://github.com/MrWendigo03/MrWendigo03/assets/121160926/b9c145b9-8c29-4834-b633-8c56e044424f.png)
 
 ---
 
